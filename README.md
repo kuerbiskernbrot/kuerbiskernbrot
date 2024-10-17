@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kuerbiskernbrot
 - 👀 I’m interested in tech-projects
 - 🌱 I’m currently learning for school🥱
-- 📫 How to reach me -> Dc:
+- 📫 How to reach me -> Dc: kurbiskernbrot
 - 😄 Pronouns: He/Him
